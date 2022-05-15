@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @AEJ2025
+- 👋 Hi, I’m @AEJ
 - 👀 I’m interested in ... things
 - 🌱 I’m currently learning ... information
 - 💞️ I’m looking to collaborate on ... nothing
